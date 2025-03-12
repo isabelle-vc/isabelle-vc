@@ -5,7 +5,7 @@
 
 **`Digital Designer`**
 
-With a Digital Design degree, I thrive on bringing ideas into reality through captivating visuals and good experience for the user's journey.
+On a mission to turn ideas into eye candy and smooth experiences ✌️
 
 <h3>
     💻 Techonologies & Tools
